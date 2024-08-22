@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **mohansabari052003@gmail.com**
 
-- 📄 Know about my experiences [https://www.canva.com/design/DAF9-MRmK1c/rm6lJ5Sye1oTBRQYw9u_4Q/edit?utm_content=DAF9-MRmK1c&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton](https://www.canva.com/design/DAF9-MRmK1c/rm6lJ5Sye1oTBRQYw9u_4Q/edit?utm_content=DAF9-MRmK1c&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+- 📄 Know about my experiences Moha-Onepage
 
 - ⚡ Fun fact **I think I am Crazy about Coding**
 
